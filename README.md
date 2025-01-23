@@ -81,4 +81,4 @@ Give a ⭐️ if this project helped you!
 
 ---
 
-Made with ❤️ by [Your Name/Team Name]
+Made with ❤️ by Teklu Moges
